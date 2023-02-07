@@ -1,2 +1,2 @@
 # MaminiPelmeni10
-plan scam
+privet chel
